@@ -99,7 +99,7 @@ And many more critical findings….
 
 Follow me for more content:
 
-[LinkedIn]((https://www.linkedin.com/in/kullai-metikala-8378b122a/)) | [Twitter](https://twitter.com/kullai12) 
+[LinkedIn](https://www.linkedin.com/in/kullai-metikala-8378b122a/) | [Twitter](https://twitter.com/kullai12) 
 
 Please contact me any freelancing at <a href="mailto:metikalakullai.gtl@gmail.com">metikalakullai.gtl@gmail.com</a> you will get replies in min's
 
